@@ -63,5 +63,5 @@ If you have any questions or comments regarding this Privacy Policy, please cont
 
 - **[Private Entrepreneur Denys Pohrebniak]**
 - **[[linkedin](https://www.linkedin.com/in/denys-p-81b919149/)]**
-- **[Contact Email(hhunting360@zohomail.eu)]**
+- **[[Contact Email](hhunting360@zohomail.eu)]**
 
